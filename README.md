@@ -1,1 +1,1 @@
-# deluxe220
+www.kaneoldman.com/projects/deluxe220 for more info
